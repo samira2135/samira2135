@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @sra2135
-- 👀 I’m interested in ...
+- 👀 I’m interested in travelling ,adventure and ART
 - 🌱 I’m currently learning Deutch
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on EVERYTHING WITH GOOD OPPORTUNITY
 - 📫 How to reach me ...
 - 😄 Pronouns: ENGLISH :)
 - ⚡ Fun fact: Hollywood smile <3 hahaha
