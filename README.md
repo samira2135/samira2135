@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Deutch and FRENCH
 - 💞️ I’m looking to collaborate on EVERYTHING WITH GOOD OPPORTUNITY
 - 📫 How to reach me ...
-- 😄 Pronouns: ENGLISH :)
+- 😄 Pronouns: ENGLISH :) And arabic
 - ⚡ Fun fact: Hollywood smile <3 hahaha
 
 <!---
