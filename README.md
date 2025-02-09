@@ -10,7 +10,7 @@
 sira2135/sira2135 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Looking for a collaboration <3
+Looking for a collaboration <3ndzazp
 Wanna be ortodontics in future too; thanks°_°
 And intrested with travelling to LA TO CALIFORNIA ; BEVERLY HILLS , SANTA MONICA <3 I wish i could be there one day PEACE <3
 loooooooooooool
