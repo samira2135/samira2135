@@ -2,7 +2,7 @@
 - 👀 I’m interested in travelling ,adventure and ART AND MAKING powzjpooippooi
 - 🌱 I’m currently learning Deutch and FRENCH
 - 💞️ I’m looking to collaborate on EVERYTHING WITH GOOD OPPORTUNITY
-- 📫 How to reach me ...
+- 📫 How to reach me ...o
 - 😄 Pronouns: ENGLISH :) And arabic
 - ⚡ Fun fact: Hollywood smile <3 hahahakolomkj,kmlm,;lmj,ml,jloikjj
 ,kmkmkiojkkiik
