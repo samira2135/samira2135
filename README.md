@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sra2135
-- 👀 I’m interested in travelling ,adventure and ART AND MAKING powzjpooippooi
+- 👀 I’m interested in travelling ,adventure and ART AND MAKING powzjpooippooikjojojopkiô
 - 🌱 I’m currently learning Deutch and FRENCH
 - 💞️ I’m looking to collaborate on EVERYTHING WITH GOOD OPPORTUNITY
 - 📫 How to reach me ...o
