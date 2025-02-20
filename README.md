@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on EVERYTHING WITH GOOD OPPORTUNITY
 - 📫 How to reach me ...o
 - 😄 Pronouns: ENGLISH :) And arabic
-- ⚡ Fun fact: Hollywood smile <3 hahahakolomkj,kmlm,;lmj,ml,jloikjj
+- ⚡ Fun fact: Hollywood smile <3 hahahakolomkj,kmlm,;lmj,ml,jloikjjخكنحنححك
 ,kmkmkiojkkiik
 <!--- love listening to muisicojopmjpijplkmljluo
 sira2135/sira2135 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.smpdpkp
